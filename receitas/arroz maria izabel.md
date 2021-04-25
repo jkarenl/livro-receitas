@@ -1,3 +1,7 @@
+# Arroz Maria Izabel
+
+
+
 ## Ingredientes
 
 - 3 xícaras de arroz (bem limpo)
@@ -11,17 +15,7 @@
 - 1 pitada de pimenta-do-reino
 - 1 maço de cebolinha picada muito fininha
 
-<iframe style="border: 0px none; vertical-align: bottom; width: 300px; height: 250px;" src="https://76b9d812c8a51b3c1499801f8d63ce5f.safeframe.googlesyndication.com/safeframe/1-0-38/html/container.html" id="google_ads_iframe_/21636860837/TudoGostoso/Content_4" title="3rd party ad content" name="" scrolling="no" marginwidth="0" marginheight="0" data-is-safeframe="true" sandbox="allow-forms allow-popups allow-popups-to-escape-sandbox allow-same-origin allow-scripts allow-top-navigation-by-user-activation" data-google-container-id="c" data-load-complete="true" width="1" height="1" frameborder="0"></iframe>
 
-
-
-## 
-
-## 
-
-## 
-
-## 
 
 ## Modo de Preparo
 

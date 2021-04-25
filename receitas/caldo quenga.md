@@ -1,3 +1,7 @@
+# Caldo de Quenga
+
+
+
 ## Ingredientes
 
 - 2 kg de mandioca
@@ -12,14 +16,6 @@
 - sal a gosto
 - cheiro verde a gosto
 
-
-
-## 
-
-## 
-
-## 
-
 ## Modo de Preparo
 
 1. Cozinhe a mandioca com a cenoura e as mandioquinhas.
@@ -29,8 +25,6 @@
 5. Bata no liquidificador a mandioca, a mandioquinha e a cenoura com a água do cozimento.
 6. Acrescente a mistura na panela junto com o refogado, se necessário acrescente mais água e deixe ferver.
 7. Se preferir pode ser servido com parmesão ralado e torresmo.
-
-
 
 
 
